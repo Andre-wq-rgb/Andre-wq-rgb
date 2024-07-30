@@ -1,5 +1,5 @@
 ## Fumo maconha e é muito bom :D 👋
-## Agora serião, só um maluco aqui que resolveu aprender JavaScript 🥶🥶
+## Agora serião, só um maluco aqui que resolveu aprender JavaScript 🥶🥶 ![](https://tenor.com/sGWbDC73We5.gif)
 ![](https://tenor.com/sGWbDC73We5.gif)
 
 <!--
